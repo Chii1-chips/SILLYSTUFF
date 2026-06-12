@@ -1,5 +1,9 @@
 <p align="center"> <img src="https://adriansblinkiecollection.neocities.org/dividers/glitterstrawberries.gif" width="1000">
 
+# <p align="center">🐈‍⬛ ;;  Welcome, newcomer, or returner! Looks like you decided to click on the link, eh? Anyway. This page will be the stuff Ayumi and I do! OR just anything random we want to add here.. Though, the way that sometimes there is some oddities, there seems to be some hackers every now and then.. Weird, isn't it? Hope you have fun reading regardless! " ૮₍ ˶>ヮ<˶₎ა
+
+<p align="center"> <img src="https://adriansblinkiecollection.neocities.org/dividers/glitterstrawberries.gif" width="1000">
+  
 # ꒰  𝘽𝙚𝙨𝙩 𝙨𝙚𝙚𝙣 𝙤𝙣 𝙙𝙖𝙧𝙠 𝙢𝙤𝙙𝙚!  ꒱
 
 #  🛈 ⪼ FYI!
