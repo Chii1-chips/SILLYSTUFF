@@ -22,3 +22,11 @@
 💢⚔️ :: " ***No, Last i checked it was Normal aswell. it seems like we may have been hacked.*** "
 
 <img width="1000" height="24" alt="blooddivider" src="https://github.com/user-attachments/assets/c572ba4c-6073-455f-8dc1-e2d0b1c78f11" />
+
+# <p align="center">🐈‍⬛ ;; ... End of the page, for now! Catch you later! :) "
+
+### LINK AREA!
+
+### LINK TO [CHII CHII'S GITHUB PAGE!](https://github.com/Chii1-chips)
+
+### LINK TO [AYUMI'S GITHUB PAGE!](https://github.com/Cuddling-Encouraged-heavily-Dnc)
