@@ -25,8 +25,14 @@
 
 # <p align="center">🐈‍⬛ ;; ... End of the page, for now! Catch you later! :) "
 
+<p align="center"><img width="868" height="50" alt="vine27" src="https://github.com/user-attachments/assets/ea059f5e-ba13-400a-8e99-907962dc1e99" />
+ 
 ### LINK AREA!
+
+> 🐈‍⬛ meow... mrrrp... 
 
 ### LINK TO [CHII CHII'S GITHUB PAGE!](https://github.com/Chii1-chips)
 
 ### LINK TO [AYUMI'S GITHUB PAGE!](https://github.com/Cuddling-Encouraged-heavily-Dnc)
+
+<p align="center"><img width="868" height="50" alt="vine27" src="https://github.com/user-attachments/assets/ea059f5e-ba13-400a-8e99-907962dc1e99" />
