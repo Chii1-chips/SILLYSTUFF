@@ -1,3 +1,4 @@
+
 <p align="center"> <img src="https://adriansblinkiecollection.neocities.org/dividers/glitterstrawberries.gif" width="1000">
 
 # <p align="center">🐈‍⬛🤖 ;;  Welcome, newcomer, or returner! Looks like you decided to click on the link, eh? Anyway. This page will be the stuff Ayumi and I do! OR just anything random we want to add here.. Though, the way that sometimes there is some oddities, there seems to be some hackers every now and then.. Weird, isn't it? Hope you have fun reading regardless! " ૮₍ ˶>ヮ<˶₎ა
@@ -22,6 +23,14 @@
 💢⚔️ :: " ***No, Last i checked it was Normal aswell. it seems like we may have been hacked.*** "
 
 <img width="1000" height="24" alt="blooddivider" src="https://github.com/user-attachments/assets/c572ba4c-6073-455f-8dc1-e2d0b1c78f11" />
+
+<img width="1000" height="24" alt="ocean" src="https://github.com/user-attachments/assets/421f87a0-2f74-4f56-bbb0-7bd2ac5aa8f8" /> 
+
+<p align="center"><img width="355" height="613" alt="Screenshot 2026-06-12 6 54 15 PM" src="https://github.com/user-attachments/assets/6a2c7cdb-90db-4d46-9cff-80efee1c32f7" />
+
+<p align="center">🐈‍⬛🤖 ;;
+
+<img width="1000" height="24" alt="ocean" src="https://github.com/user-attachments/assets/421f87a0-2f74-4f56-bbb0-7bd2ac5aa8f8" />
 
 # <p align="center">🐈‍⬛ ;; ... End of the page, for now! Catch you later! :) "
 
