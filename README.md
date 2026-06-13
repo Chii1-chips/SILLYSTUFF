@@ -3,7 +3,7 @@
 
   <p align="center"> <img width="1000" height="24" alt="sparkles6" src="https://github.com/user-attachments/assets/097f7c46-af2b-40f4-ad9f-b83753515eae" />
     
-# 🛈 CLARIFICATION: <ins>I'd like to mention that is this ALL purely ficitonal and NOT real. The timelines you see are NOT when we made them, just when it was set. This is just a fun project that has lore, characters, and the works<ins>!
+# 🛈 CLARIFICATION: <ins>I'd like to mention that this is ALL purely ficitonal and NOT real. The timelines you see are NOT when we made them, just when it was set. This is just a fun project that has lore, characters, and the works<ins>!
 
 <p align="center"> <img width="1000" height="24" alt="sparkles6" src="https://github.com/user-attachments/assets/097f7c46-af2b-40f4-ad9f-b83753515eae" />
 
