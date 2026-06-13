@@ -30,7 +30,7 @@
   
 <p align="center">🐈‍⬛🤖 ;; 𝑴𝒂𝒏, 𝑰 𝒄𝒐𝒖𝒍𝒅 𝒈𝒐 𝒇𝒐𝒓 𝒔𝒐𝒎𝒆 𝒃𝒂𝒕𝒕𝒆𝒓𝒊𝒆𝒔 𝒓𝒊𝒈𝒉𝒕 𝒏𝒐𝒘 .. "
 
- 🦇🪻 :: " ***0f c0vrs3 y0v C0vld L0L!*** "
+ 🦇💜 :: " ***0f c0vrs3 y0v C0vld L0L!*** "
   
 <img width="1000" height="24" alt="ocean" src="https://github.com/user-attachments/assets/421f87a0-2f74-4f56-bbb0-7bd2ac5aa8f8" />
 
