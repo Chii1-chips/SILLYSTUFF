@@ -11,7 +11,7 @@
 
 #  ***The emojis:*** ❛❛ 🐈‍⬛🤖 ❞ ***Is <ins>Chii Chii<ins> speaking***!
 
-#  ***The emojis:***  ❛❛ 💢⚔️ ❞ ***Is <ins>Ayumi<ins>  speaking***!
+#  ***The emojis:***  ❛❛ 💢⚔️|| 🦇💜 ❞ ***Is <ins>Ayumi<ins>  speaking***!
 
 <img width="1000" height="24" alt="blooddivider" src="https://github.com/user-attachments/assets/c572ba4c-6073-455f-8dc1-e2d0b1c78f11" />
 
