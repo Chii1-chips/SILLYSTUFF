@@ -8,7 +8,7 @@
 <p align="center"> <img width="1000" height="24" alt="sparkles6" src="https://github.com/user-attachments/assets/097f7c46-af2b-40f4-ad9f-b83753515eae" />
 
   
-# <p align="center">🐈‍⬛🤖 ;;  Welcome, newcomer, or returner! Looks like you decided to click on the link, eh? Anyway. This page will be the stuff Ayumi and I do! OR just anything random we want to add here.. Though, the way that sometimes there is some oddities, there seems to be some hackers every now and then.. Weird, isn't it? Hope you have fun reading regardless! " ૮₍ ˶>ヮ<˶₎ა
+# <p align="center">🐈‍⬛🤖 ;;  Welcome, newcomer, or returner! Looks like you decided to click on the link, eh? Anyway. This page will be the stuff Ayumi and I do! OR just anything random we want to add here.. Though, by the looks of it.. There seems to be some strange things happening. Weird, isn't it? Hope you have fun reading regardless!" ૮₍ ˶>ヮ<˶₎ა
 
 <p align="center"> <img src="https://adriansblinkiecollection.neocities.org/dividers/glitterstrawberries.gif" width="1000">
   
