@@ -27,10 +27,15 @@
 <img width="1000" height="24" alt="ocean" src="https://github.com/user-attachments/assets/421f87a0-2f74-4f56-bbb0-7bd2ac5aa8f8" /> 
 
 <p align="center"><img width="355" height="613" alt="Screenshot 2026-06-12 6 54 15 PM" src="https://github.com/user-attachments/assets/6a2c7cdb-90db-4d46-9cff-80efee1c32f7" />
+  
+<p align="center">🐈‍⬛🤖 ;; 𝑴𝒂𝒏, 𝑰 𝒄𝒐𝒖𝒍𝒅 𝒈𝒐 𝒇𝒐𝒓 𝒔𝒐𝒎𝒆 𝒃𝒂𝒕𝒕𝒆𝒓𝒊𝒆𝒔 𝒓𝒊𝒈𝒉𝒕 𝒏𝒐𝒘 .. "
 
+💢⚔️ :: " ***placholder for ayumi*** "
+  
 <img width="1000" height="24" alt="ocean" src="https://github.com/user-attachments/assets/421f87a0-2f74-4f56-bbb0-7bd2ac5aa8f8" />
 
-# <p align="center">🐈‍⬛ ;; ... End of the page, for now! Catch you later! :) "
+# <p align="center">🐈‍⬛🤖 ;; ... End of the page, for now! Catch you later! :) "
+
 
 <p align="center"><img width="868" height="50" alt="vine27" src="https://github.com/user-attachments/assets/ea059f5e-ba13-400a-8e99-907962dc1e99" />
  
