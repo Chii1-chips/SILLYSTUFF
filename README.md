@@ -31,6 +31,8 @@
 <p align="center">🐈‍⬛🤖 ;; 𝑴𝒂𝒏, 𝑰 𝒄𝒐𝒖𝒍𝒅 𝒈𝒐 𝒇𝒐𝒓 𝒔𝒐𝒎𝒆 𝒃𝒂𝒕𝒕𝒆𝒓𝒊𝒆𝒔 𝒓𝒊𝒈𝒉𝒕 𝒏𝒐𝒘 .. "
 
  🦇💜 :: " ***0f c0vrs3 y0v C0vld L0L!*** "
+
+  <p align="center">🐈‍⬛🤖 ;; 𝑾𝒉𝒂𝒕 𝒘𝒂𝒔 𝒕𝒉𝒂𝒕 𝒏𝒐𝒊𝒔𝒆 ?! .. 𝑴𝒂𝒚𝒃𝒆 𝑰 𝒅𝒐 𝒓𝒆𝒂𝒍𝒍𝒚 𝒏𝒆𝒆𝒅 𝒂 𝒓𝒆𝒄𝒉𝒂𝒓𝒈𝒆.. "
   
 <img width="1000" height="24" alt="ocean" src="https://github.com/user-attachments/assets/421f87a0-2f74-4f56-bbb0-7bd2ac5aa8f8" />
 
