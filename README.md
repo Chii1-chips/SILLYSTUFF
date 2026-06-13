@@ -15,6 +15,9 @@
 
 <img width="1000" height="24" alt="blooddivider" src="https://github.com/user-attachments/assets/c572ba4c-6073-455f-8dc1-e2d0b1c78f11" />
 
+# <p align="center"> ⪼ December 1st, ████
+
+#  <p align="center"> - - - - - - - - - - - - - - - - - - - -
 
 <p align="center"><img width="637" height="609" alt="Screenshot_20260611_194641_Chrome" src="https://github.com/user-attachments/assets/cff3d18e-5955-4642-a4cf-283c7572695d" /></p>
 
@@ -26,6 +29,9 @@
 
 <img width="1000" height="24" alt="ocean" src="https://github.com/user-attachments/assets/421f87a0-2f74-4f56-bbb0-7bd2ac5aa8f8" /> 
 
+# <p align="center"> ⪼ December 8th, ████
+
+#  <p align="center"> - - - - - - - - - - - - - - - - - - - -
 <p align="center"><img width="355" height="613" alt="Screenshot 2026-06-12 6 54 15 PM" src="https://github.com/user-attachments/assets/6a2c7cdb-90db-4d46-9cff-80efee1c32f7" />
   
 <p align="center">🤖💚 ;; 𝙈@𝙣. 𝙄 𝙘0𝙪𝙡𝙙 𝙜𝙤 𝙛𝙤𝙧 𝙨𝙤𝙢3 𝙗𝙖𝙩𝙩𝙚𝙧!𝙚𝙨 𝙧!!𝙜𝙝𝙩 𝙣00𝙤𝙤𝙬.. "
