@@ -12,7 +12,7 @@
 
 <p align="center"> <img src="https://adriansblinkiecollection.neocities.org/dividers/glitterstrawberries.gif" width="1000">
   
-# ꒰  𝘽𝙚𝙨𝙩 𝙨𝙚𝙚𝙣 𝙤𝙣 𝙙𝙖𝙧𝙠 𝙢𝙤𝙙𝙚!  ꒱
+# <p align="center">  ꒰  𝘽𝙚𝙨𝙩 𝙨𝙚𝙚𝙣 𝙤𝙣 𝙙𝙖𝙧𝙠 𝙢𝙤𝙙𝙚!  ꒱
 
 #  🛈 ⪼ FYI!
 
